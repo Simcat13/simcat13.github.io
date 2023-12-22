@@ -27,4 +27,6 @@
 | 22:00 | 밤 우다다 | 접신한듯이 우와왕거리면서 우다다한다 |
 
 # 돼지의 한마디
-> 으아앙?? 맹맹..? 잉?? - 돼지
+> 으아앙?? 맹맹맹매애앵! 잉?? - 돼지
+
+(![image](https://github.com/Simcat13/simcat13.github.io/assets/152838482/bc086d94-d1f6-47d2-9b55-f7be6bcbbdf4)
